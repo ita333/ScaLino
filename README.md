@@ -75,8 +75,7 @@ Under the following terms:
 
 ## Contact
 
-[Your Name/Project Contact Name] - [Your Email Address or Project Email Address (optional)]
-
+[Ita333] 
 ---
 
 **Let's build ScaLino together and make vertical mobility more accessible for everyone!**
